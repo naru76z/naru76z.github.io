@@ -1,1 +1,0 @@
-# naru76z.github.io
